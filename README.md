@@ -233,4 +233,4 @@ Hell Let Loose is available as a full free version, with all features and update
 Join the battlefield now and experience the full version of Hell Let Loose—download it for free today!
 
 ---
-**Last updated:** 2026-11-01 20:02:15 UTC
+**Last updated:** 2026-11-02 00:07:02 UTC
